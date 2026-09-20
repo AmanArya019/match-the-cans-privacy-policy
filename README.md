@@ -1,1 +1,1 @@
-# index.html
+# MATCH THE CANS PRIVACY POLICY
